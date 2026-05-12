@@ -1,4 +1,4 @@
-#  
+#  Experience jujutsu shenanigans like never before with jujutsu shenanigans new Script, the #1 Script. Includes god mode and anti-ban for unbeatable
 
 
 
